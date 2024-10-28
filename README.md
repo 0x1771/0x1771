@@ -8,7 +8,7 @@ _______
 
 - 📫 How to reach me **mikailxustuner@gmail.com**
 
-- 📱 My social media account is **https://www.instagram.com/0x1772**
+- 📱 My social media account is **https://www.instagram.com/mikailustunerr**
 
 - ⚡ Fun fact **Music is my life**
 
