@@ -6,7 +6,7 @@ _______
 
 - 🤝 I’m looking for help for ai project named CryptAI
 
-- 📫 How to reach me **info@0x1772.me**
+- 📫 How to reach me **mikailxustuner@gmail.com**
 
 - 📱 My social media account is **https://www.instagram.com/0x1772**
 
